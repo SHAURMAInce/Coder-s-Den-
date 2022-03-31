@@ -2,4 +2,4 @@
 Не нарушайте правила. 
 Discord: https://discord.gg/ZbbvBGvVP2
 
-//tes//
+//test//
